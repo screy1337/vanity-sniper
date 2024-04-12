@@ -19,3 +19,5 @@ Ciddi iş yapmıyorum, tamamen hobi.
 ```
 
 🥸🥸
+@screy1337
+@cocuksever
